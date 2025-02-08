@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RealRosario9495
+- 👀 I’m interested in HTML Programming
+- 🌱 I’m currently learning for School
+- 💞️ I’m looking to collaborate on -
+- 📫 How to reach me -
+- 😄 Pronouns: he, him
+- ⚡ Fun fact: im not Gay
